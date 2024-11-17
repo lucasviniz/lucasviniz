@@ -12,4 +12,4 @@ Desenvolvedor **FullStack** apaixonado por criar soluções inovadoras no mundo 
   
  </div>
  
-Fique à vontade para explorar meus projetos e entrar em contato. Bora construir algo incrível juntos! 😄
+Fique à vontade para explorar meus projetos e entrar em contato. Bora construir algo incrível juntos!
